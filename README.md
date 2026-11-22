@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am currntly working as a business analyst and i also have the experice in data analsyst and research analyst and i know the techbology involve in this feild and i am also handling training in currnt comapany <br>
+I am currntly working as a business analyst and i also have the experice in data analsyst and research analyst and i know the techbology involve in this feild and i am also handling training in currnt comapany <br>
 
 
 ## 🌐 Socials:
